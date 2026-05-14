@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with automatic Polymarket Utility | trade-sniping + sentiment-analysis, the #1 utility. Includes trade-sniping and sentiment-analysis for a
 
 
 
